@@ -1,0 +1,10 @@
+# makalah-fisika-chantika
+![image](https://github.com/user-attachments/assets/bf1a70ce-c75e-47ee-aaa8-76f58ad13a77)
+![image](https://github.com/user-attachments/assets/2335304e-33af-4281-a5a4-b074f69d2864)
+![image](https://github.com/user-attachments/assets/90b82ff4-1e27-4096-9b50-888482ee2b1b)
+![image](https://github.com/user-attachments/assets/b23a70f2-58e5-4292-867c-a0e20a46a178)
+![image](https://github.com/user-attachments/assets/bdf980fc-443f-4faf-b0a3-2b7ad253233c)
+![image](https://github.com/user-attachments/assets/83e161cb-ea54-43b6-9e93-c5c0a9307882)
+![image](https://github.com/user-attachments/assets/66aa24f3-e3c2-4f54-8ed9-6191dbf63540)
+![image](https://github.com/user-attachments/assets/8b041c81-7acf-49b9-88af-d4bb0ff8df76)
+![image](https://github.com/user-attachments/assets/f077617f-cc2c-49db-aa92-6d5f11653fc8)
